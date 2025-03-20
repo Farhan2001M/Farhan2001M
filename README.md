@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on new technologies.
 - 📫 Reach me on linkedIN.
 - 😄 Pronouns: Chittu
-- ⚡ Fun fact: No facts here.
